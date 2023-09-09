@@ -1,0 +1,1 @@
+# Jyv-skyl-n-KKeski-Suomen-Kennelkerhoillerin-Ryhm-n-yttelyt
